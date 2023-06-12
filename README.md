@@ -1,0 +1,8 @@
+
+Meu nome é Yasmin V.
+
+- Estou estudando na plataforma Alura
+- Estou me desenvolvendo  
+- Ultilizo esse espaço para compartlhamento do meu projetos 
+
+! .[_].(https://media.tenor.com/uZXigU3bvdkAAAAC/wally-darling-welcome-home.gif)
